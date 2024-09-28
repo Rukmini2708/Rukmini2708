@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rukmini2708
+- 👀 I’m interested in Coding and learning
+- 📫 How to reach me ...
+- https://www.linkedin.com/in/rukmini2708/
+- 😄 Pronouns: She/Her
